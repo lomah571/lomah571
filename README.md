@@ -1,5 +1,4 @@
-### BOAS VINDAS AO MEU PERFIL 
-amo gatos 
-estou estudando na sala de leitura
-bom dia
-_popo_
+### BOAS VINDAS AO MEU PERFIL 🥇
+Meu nome e paloma 🎱
+estou estudando no alura ⏰
+hi gays✈️
